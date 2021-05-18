@@ -6,3 +6,4 @@ You can ask me questions and contact me at any time.
 - 📫 How to reach me: mano.gsat@hotmail.com
 - 🇵🇹 Nationality: Portuguese
 - 😄 Pronouns: He/Him
+- 📍 Location: Portugal 🔜 Edinburgh
