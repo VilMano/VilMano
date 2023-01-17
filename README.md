@@ -3,7 +3,7 @@ The projects I have here aren't well organised but soon you'll be able to take a
 
 You can ask me questions and contact me at any time.
 
-- 📫 How to reach me: vil.systems.tech@gmail.com
+- 📫 How to reach me: gsat.mano@gmail.com
 - 🇵🇹 Nationality: Portuguese
 - 😄 Pronouns: He/Him
 - 📍 Location: Porto(Portugal)
