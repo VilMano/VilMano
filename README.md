@@ -7,5 +7,5 @@ You can ask me questions and contact me at any time.
 - 🇵🇹 Nationality: Portuguese
 - 😄 Pronouns: He/Him
 - 📍 Location: Porto(Portugal)
-- 🏢 Software Developer at MBIT
+- 🏢 Software Developer
 
