@@ -5,7 +5,7 @@ You can ask me questions and contact me at any time.
 
 - 📫 How to reach me: gsat.mano@gmail.com
 - 🇵🇹 Nationality: Portuguese
-- 😄 Pronouns: He/Him
+- 😄 Pronouns: He/Him/Them
 - 📍 Location: Porto(Portugal)
 - 🏢 Software Developer
 
